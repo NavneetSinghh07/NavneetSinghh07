@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NavneetSinghh07
 - 👀 I’m alwyas curious to explore and learn new things.
 - 🌱 I’m currently pursuing B.Tech CSE in Lovely Proffessional University, Punjab.
-- 💞️ I’m seeking for an oppourtunity where  I can use my knowledge in python, html and css for web development.
+- 💞️ My hobbies are playing football and watching movies.
 - 📫 How to reach me ....
 -                   LINKEDLN :- https://www.linkedin.com/in/-navneet-singh
 -                   📧 :- navneetsingh979211@gmail.com
