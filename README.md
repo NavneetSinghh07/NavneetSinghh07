@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NavneetSinghh07
 - 👀 I’m alwyas curious to explore and learn new things.
-- 🌱 I’m currently pursuing B.Tech CSE in Lovely Proffessional University, Punjab.
+- 🌱 I’m currently pursuing B.Tech CSE at Lovely Proffessional University, Punjab.
 - 💞️ My hobbies are playing football and watching movies.
 - 📫 How to reach me ....
 -                   LINKEDLN :- https://www.linkedin.com/in/-navneet-singh
